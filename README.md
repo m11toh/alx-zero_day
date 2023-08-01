@@ -1,1 +1,1 @@
-learning is cool and goog
+learning is cool and good
